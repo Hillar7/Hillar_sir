@@ -1,5 +1,5 @@
 ## Thanks for Everything 
-### We will always remember you..
+### it's me Hillar 
 
 <div align="center">
   <img border-radius: 15px src="https://telegra.ph/file/fe0c46a730ac0e507dd57.jpg" width="170" height="170"/>
